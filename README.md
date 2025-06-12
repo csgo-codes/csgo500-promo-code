@@ -8,6 +8,13 @@ Use the CSGO500 promo code CSGO500MAX to claim the best welcome offers. For exam
  | CSGO500 | CSGO500MAX | 50 Free Spins |
  | CSGO500 | CSGO500MAX | 100 Free Coins |
 
+  ### Additional Promo Codes
+1. [CSGOEmpire Promo Code](https://github.com/csgo-codes/csgoempire-promo-code)
+2. [Hellcase Promo Code](https://github.com/csgo-codes/hellcase-promo-code)
+3. [CSGOroll Promo Code](https://github.com/csgo-codes/csgoroll-promo-code)
+4. [CSGOLuck Promo Code](https://github.com/csgo-codes/csgoluck-promo-code)
+
+
 ## The CSGO500 Bonus Code is CSGO500MAX
 We tested the CSGO500 referral code CSGO500MAX during a full registration and deposit process, and the results were exactly as promised. The 100% deposit bonus, capped at $1,000, gave us ample room to test their original games and sports betting section. On top of that, we were also credited with 50 free spins, which worked perfectly on slots powered by Pragmatic Play. This is an excellent starter combo for any player looking to stretch their budget.
 
